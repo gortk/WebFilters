@@ -12,6 +12,10 @@ browsing for content.
 To start, select the "NSFW" folder, read the readme file inside it and import the filter. 
 That's all.
 
+This list is __thought to be used in a dedicated nsfw browser__. The list will also block a lot of non-nsfw sites because they still 
+appear in the results even when not actively searching for stuff on them (blame that on search engines). 
+I recommend getting a portable firefox for this.
+
 WARNING: this filter will remove TONS of results.
 
 
