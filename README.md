@@ -35,7 +35,7 @@ be way less.
 
 
 # Manifesto
-So... we are in an era of easy manipulation. For some weird reason, 90% of the sites will be about transsexuals, female domination and weirdos wearing dog head masks or fox ears. The "normal" porn was stupidized by the big studios like bangbros, brazzers and other american shit that for some reason think their jokes are fun. Most porn nowadays is ridiculous. Colorful wigs, eyes crossed, wearing stupid animal outfits, painting their faces like clowns, muscular girls and fucking live action anime. 
+So... we are in an era of easy manipulation. For some weird reason, 90% of the sites will be about transsexuals, female domination and weirdos wearing dog head masks or fox ears. The "normal" porn was stupidized by the big studios like bangbros, brazzers and other american shit that for some reason think their jokes, parodies and stupid male face closeups are fun. Most porn nowadays is ridiculous. Colorful wigs, eyes crossed, wearing stupid animal outfits, painting their faces like clowns, muscular girls and fucking live action anime. 
 All this shit goes along with a progressist agenda (if we can somehow call this "progress") that I DON'T KNOW WHY ENDED UP LIKE THIS, so all this shit comes to enforce your subconscience into beliving that is "normal" and "good". 
 They poison new generations with this as "normal" fetishes are buried. You now have to choose between millionare whores uploading their gym routines while playing video games, or go watch gay content. 
 
