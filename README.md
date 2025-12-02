@@ -14,3 +14,16 @@ That's all.
 
 WARNING: this filter will remove TONS of results.
 
+
+## Key notes:
+Internet is changing constantly. There still will be "bad" sites in the results, but hopefully the trash will
+be way less. 
+
+- The list prioritizes "real human" content.
+- Some crappy amateur xxx drawings sites removed.
+- Furry focused sites are actively blocked.
+- Trans-gay focused sites are actively blocked.
+- Mainstream paid sites are actively blocked.
+- Mainstream streaming "tube" sites are actively blocked (see the readme on why).
+- Some java locked content sites are blocked (difficult to download from them).
+- Bad quality "real human" content sites are actively blocked.
